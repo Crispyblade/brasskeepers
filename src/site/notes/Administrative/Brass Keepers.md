@@ -7,7 +7,7 @@ Home Page
 Brass Keepers:
 Team Members
 [[Players/Minst Ruaren\|Minst Ruaren]]
-[[Players/Beckington Baxter Baybeally-Ruaren\|Beckington Baxter Baybeally-Ruaren]]
+[[Players/Beckimton Baxter Baybeally-Ruaren\|Beckimton Baxter Baybeally-Ruaren]]
 [[Players/Yumi\|Yumi]]
 [[Players/Fortune Goldblossom\|Fortune Goldblossom]]
 [[Players/Arion Knightsbane\|Arion Knightsbane]]

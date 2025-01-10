@@ -82,3 +82,5 @@ Cruller Jamaine: Youngest son, fortune’s possible arranged marriage
 Eiban Jamaine: Oldest son
 
 **
+
+Is being hunted by [[Characters/Swift\|Swift]],  a member of [[Businesses and Organizations/The Six\|The Six]]

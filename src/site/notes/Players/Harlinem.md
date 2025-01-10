@@ -28,4 +28,4 @@ I planned on stealing from them too but I couldn't bring myself to do it. Not af
 
 **
 
-Harlinem is currently being hunted by [[Characters/Subasa\|Subasa]]
+Harlinem is currently being hunted by [[Characters/Subasa\|Subasa]], a member of [[Businesses and Organizations/The Six\|The Six]]

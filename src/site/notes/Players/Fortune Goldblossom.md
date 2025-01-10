@@ -22,7 +22,7 @@ Note from the Reavers;
 
 A young tiefling, who goes by the name “Fortune” has recently escaped my care. Find her, wherever she has gone, and return her alive and unharmed to me. Completion of this contract will earn you 50 platinum pieces, with 20 platinum paid upfront.
 
-- Signed, Thinker, patriarch of the royal house of [[Businesses and Organizations/Goldblossom\|Goldblossom]], of [[Waterdeep\|Waterdeep]]
+- Signed, Thinker, patriarch of the royal house of [[Businesses and Organizations/Goldblossom\|Goldblossom]], of [[Geography and Politics/Waterdeep\|Waterdeep]]
     
 
 

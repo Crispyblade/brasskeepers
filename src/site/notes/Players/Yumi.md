@@ -4,7 +4,7 @@
 
 **
 
-A Lightfoot halfling druid with a family farm (Honeydew Acres) in [[Neverwinter\|Neverwinter]].
+A Lightfoot halfling druid with a family farm (Honeydew Acres) in [[Geography and Politics/Neverwinter\|Neverwinter]].
 She has many siblings.
 
 **

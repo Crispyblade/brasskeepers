@@ -3,6 +3,7 @@
 ---
 
 Birthday: 12/29
+Race: [[Species and Cultures/Shadar-Kai\|Shadar-Kai]]
 
 Minst Ruaren was born in [[History and Myths/Shadowfell\|Shadowfell]] in the town of [[Geography and Politics/Obleris\|Obleris]] roughly three hundred years ago to [[Characters/Joan Ruaren\|Joan Ruaren]] and [[Characters/Nicholas Ruaren\|Nicholas Ruaren]]. She had a good relationship with both.
 She left Shadowfell after her father died.

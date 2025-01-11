@@ -2,8 +2,8 @@
 {"dg-publish":true,"permalink":"/players/beckimton-baxter-baybeally-ruaren/"}
 ---
 
+Birthday: 12/25
 
-Dads name is Bonto
 Dad got super depressed after mom died, “went out to get milk” went on a mission to find himself
 
 Wants to revive mom

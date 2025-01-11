@@ -11,6 +11,8 @@ Tiefling Rogue
 Looking for wealth
 
 
+
+
 Cousin: [[Characters/Hope Goldblossom\|Hope Goldblossom]]
 
  I think her overall plan in regards to her family situation is to use whatever notoriety she's earned from slaying a dragon plus whatever she can get from Acquisitions Inc. and combine it with stealing the family seal and maybe some forging of Uncle Thinker's signature to place herself as the head of the family then use said position to loosen the rules and allow Hope (and her other family members she's add on as an afterthought) to live however they please. (A similar result could be achieved by just waiting for Hope to inherit then having Hope pass it on to Fortune immediately, but that plan was discarded for taking too long and not having enough Pizzazz)

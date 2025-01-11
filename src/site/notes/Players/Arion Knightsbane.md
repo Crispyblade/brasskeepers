@@ -3,7 +3,7 @@
 ---
 
 Known Nicknames: Arion the Adventurous, Arion the Overzealous, Little Ari
-Birthday: June 8th
+Birthday: 6/8
 Class: [[Classes/Paladin\|Paladin]]
 Patron/Deity: [[Religion and Deities/Amaterasu\|Amaterasu]]
 Religious Sect: [[Religion and Deities/Golden Sect of the Order of Heavenly Flames\|Golden Sect of the Order of Heavenly Flames]]

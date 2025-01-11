@@ -4,7 +4,7 @@
 
 Birthday: 12/29
 
-Minst Ruaren was born in [[History and Myths/Shadowfell\|Shadowfell]] roughly three hundred years ago to [[Characters/Joan Ruaren\|Joan Ruaren]] and [[Characters/Nicholas Ruaren\|Nicholas Ruaren]]. She had a good relationship with both.
+Minst Ruaren was born in [[History and Myths/Shadowfell\|Shadowfell]] in the town of [[Geography and Politics/Obleris\|Obleris]] roughly three hundred years ago to [[Characters/Joan Ruaren\|Joan Ruaren]] and [[Characters/Nicholas Ruaren\|Nicholas Ruaren]]. She had a good relationship with both.
 She left Shadowfell after her father died.
 
 Though Minst's childhood was relatively normal and she had a small handful of close friends she left [[History and Myths/Shadowfell\|Shadowfell]] a long time ago as it is a very dreary and joyless place especially after her father died, so she ended up joining up with a minstrel troupe for a while. However Shadowfell’s influence is plain to see as Minst herself appears almost perfectly neutral at all times with the exception of when she is fighting, dancing as an entertainer, or occasionally when getting paid. She naturally fell in with a group of ruffians who showed her how to get what you want through sneakiness rather than direct confrontation, and what to do as a plan B if sneaking failed.
